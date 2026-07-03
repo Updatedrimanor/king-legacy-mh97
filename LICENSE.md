@@ -1,4 +1,4 @@
-#  
+#  hidden king legacy Scripts offers the most advanced king legacy Script, with private server access and one-hit kill. Perfect for dominating any match.
 
 
 
